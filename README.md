@@ -1,1 +1,1 @@
-# I have not the main creator of this slider
+# I am not the main creator of this slider
